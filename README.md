@@ -22,7 +22,9 @@ You might can found me on Telegram, youtube, Discord, Twitch, Facebook, etc etc.
 Quick Links to my Social Media Links :
 
 Telegram : https://t.me/TheRealModder
+
 Youtube : https://www.youtube.com/channel/UCSAICX4METWu2nWvhAJt9aw
+
 Mails (Work mail, i need some privacy too you know...) : trrrepository@gmail.com
 
 Little bit fun facts : Upgrading your OS in the settings is the same as dirty flashing a rom. but of course with a proper wipe on there and there.
